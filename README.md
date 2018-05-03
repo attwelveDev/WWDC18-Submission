@@ -5,7 +5,7 @@ Welcome to my submission for the WWDC18 Scholarships - Guess The 📧〽️💣�
 
 **Status**
 
-Submitted
+Rejected
 
 **Description**
 
